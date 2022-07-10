@@ -1,1 +1,1 @@
-https://Fakhriddin0077/github.io/Vui-Cinema-2021
+https://Fakhriddin0077/github.io/vui-cinema-2021
